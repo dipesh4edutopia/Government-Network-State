@@ -1,0 +1,1 @@
+A currency like bitcoin would mean that we could streamline activities even more. But in the short term, we won't have the backing of the governments which would see GNS as a threat. We don't want that for now. We want to work with the existing realities of the world.

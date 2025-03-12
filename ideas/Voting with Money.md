@@ -1,0 +1,1 @@
+b-10 You make a purchase on city product you get points.

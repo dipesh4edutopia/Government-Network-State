@@ -1,0 +1,16 @@
+-  Education
+	- Eklavya Schools and Colleges
+	- Differentially Priced Edtech Apps
+- Healthcare
+	- Medisearch Equivalent at lesser cost
+	- Subsidized Health Checkups 
+	-  Pharma
+		- Quality Generics Accrediated
+- Banking
+- Insurance
+- Transport
+- Entertainment
+	- Community Theatres
+-  Beauty and Skin Care
+	- Open Sourced Beauty Products (After A Dahi Handi Event)
+- Fashion and Apparel

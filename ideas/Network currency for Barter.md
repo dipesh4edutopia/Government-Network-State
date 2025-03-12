@@ -1,0 +1,2 @@
+-Tier 1 X cost per hour
+-I can barter time with anyone in network.

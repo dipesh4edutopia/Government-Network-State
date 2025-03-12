@@ -1,0 +1,3 @@
+- Money
+- M P  POWER Philatropy 
+- merit People with merit also face for money.

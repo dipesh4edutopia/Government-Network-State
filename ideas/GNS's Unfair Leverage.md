@@ -1,0 +1,1 @@
+GNS shares IP seamlessly with those following consitutional rules..

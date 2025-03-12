@@ -1,0 +1,1 @@
+GNS isn't the death of Free Markets and Capitalism. You can still make infinite wealth, just not within the GNS framework.

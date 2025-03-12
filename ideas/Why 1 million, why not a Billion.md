@@ -1,0 +1,3 @@
+We often refer to the people in GeNiuS as the [[Brainchain/Reference/Philosophy/MPI People]]. People who have merit, philanthropic mindset and Integrity. These 3 qualities don't easily manifest in one single person. That is why the target of 1 million not a Billion.
+
+Having said this, a sense of higher purpose. A feeling of selflessness or duty towards a higher purpose manifests in many forms amongst the common people. We plan to channel this feeling into action using various creative schemes. [[Brainchain/Reference/Philosophy/Schemes for Channeling selflessness into action]]. 
